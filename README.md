@@ -1,1 +1,1 @@
-https://pRogramISteRx.github.io/rsschool-cv/cv
+https://pRogramISteRx.github.io/rsschool-cv/
